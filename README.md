@@ -23,6 +23,27 @@
 
 
 ## Задание 1
+![Screenshot_145](https://github.com/user-attachments/assets/47a1f62d-174b-438a-8f3e-37d6f49e1cc8)
+
+
+
+## Задание 2
+
+![Screenshot_146](https://github.com/user-attachments/assets/226f1358-e599-4e0a-98a1-151b03068741)
+
+
+
+## Задание 3
+
+![Screenshot_147](https://github.com/user-attachments/assets/31dc3367-feb7-405c-9e97-a75b5443eebc)
+
+
+
+
+## Задание 4
+
+![Screenshot_148](https://github.com/user-attachments/assets/8a7a0703-9f43-47e6-942c-651027e0efb6)
+
 
 
 
